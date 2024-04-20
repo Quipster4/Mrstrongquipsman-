@@ -1,2 +1,3 @@
 # Mrstrongquipsman-
-Finest
+Finest crypto bot
+welcome to dollars land online profit 
